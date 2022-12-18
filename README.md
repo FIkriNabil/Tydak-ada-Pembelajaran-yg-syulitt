@@ -1,0 +1,1 @@
+# Tydak-ada-Pembelajaran-yg-syulitt
